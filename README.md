@@ -1,2 +1,0 @@
-# landingpulperia
-landign para pulperias
